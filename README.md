@@ -19,5 +19,5 @@ And yes. This is THE polar bear from the Coca-cola ad. We are in the presence of
 ![Fred, the dinosaur in front of a lighthouse and a blue Lamborghini](2023-gss-decoration-contest-4.jpg)
 For those who were here at the last holiday gathering, you may remember the holiday lambo. Well, it has now made a reappearance with Fred, the Dino, in the driver seat.
 
-**And for those who questioned whether I actually decorated my office for the 2021 GSS holiday party, or if I just copied a high quality photo from Google and used it as my entry (I'm looking at you ANITHA 👀)...here is my face w/ my decorations from this year (2023):**
+**And for those who questioned whether I actually decorated my office for the 2021 GSS holiday party, or if I just copied a high quality photo from Google and used it as my entry (I'm looking at you _ANITHA_ 👀)...here is my face w/ my decorations from this year (2023):**
 ![Picture of Michelle in front of her office, that has been decorated for the holidays](2023-gss-decoration-contest-1.jpg)
