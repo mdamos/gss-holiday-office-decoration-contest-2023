@@ -21,3 +21,9 @@ For those who were here at the last holiday gathering, you may remember the holi
 
 **And for those who questioned whether I actually decorated my office for the 2021 GSS holiday party, or if I just copied a high quality photo from Google and used it as my entry (I'm looking at you _ANITHA_ 👀)...here is my face w/ my decorations from this year (2023):**
 ![Picture of Michelle in front of her office, that has been decorated for the holidays](2023-gss-decoration-contest-1.jpg)
+
+**Lastly, here is the whole display in action!**
+<br />
+<a href="https://drive.google.com/uc?id=1L0KBXPqoJudqILIzQfL-D2NiSr3pcKPt">Click here to see the video (the rez was too high for github markdown 😅)</a>
+
+**Happy Holidays everyone! ❄️😊**
