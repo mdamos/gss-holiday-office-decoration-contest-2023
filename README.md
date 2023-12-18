@@ -24,6 +24,6 @@ For those who were here at the last holiday gathering, you may remember the holi
 
 **Lastly, here is the whole display in action!**
 <br />
-<a href="https://drive.google.com/uc?id=1L0KBXPqoJudqILIzQfL-D2NiSr3pcKPt" target="_blank">Click here to see the video (the rez was too high for github markdown 😅)</a>
+<a href="2023-gss-decoration-contest-vid.mp4" target="_blank">Click here, then "view raw" to download the video (the rez was too high for github markdown 😅)</a>
 
 **Happy Holidays everyone! ❄️😊**
